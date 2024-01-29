@@ -1,1 +1,1 @@
-# busyspirit.github.io
+# lazyspirit.github.io
