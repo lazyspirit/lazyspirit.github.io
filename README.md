@@ -1,1 +1,1 @@
-# lazyspirit.github.io
+# slacker.tk
